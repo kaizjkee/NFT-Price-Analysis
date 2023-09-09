@@ -1,4 +1,4 @@
-# IDM | Full Version
+# NFT | Price Analysis
 
 
 # 🎥 Content Menu
